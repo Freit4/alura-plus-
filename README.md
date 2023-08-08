@@ -1,5 +1,3 @@
-### alura-plus-
-
 Sou Matheus Felippe de Freitas 
  
   - Estudante do 2 ano do novo ensino médio da rede pública, Gabriel Carneiro Martins
